@@ -4,26 +4,26 @@
 
 # 黑料718  hl718.net  全网热瓜速递，一手爆料抢先看！
 
-# 黑料718 最新地址发布页 🍉🍉🍉 (本信息更新时间 2025-03-21)
+# 黑料718 最新地址发布页 🍉🍉🍉 (本信息更新时间 2025-04-07)
 
 ## 黑料718最新地址：
 
 黑料718最新地址：
-[https://hl718a.com](https://hl718a.com)  （禁止直接点击访问）请复制链接粘贴到浏览器
+[https://www.hl718b.com](https://www.hl718b.com)  （禁止直接点击访问）请复制链接粘贴到浏览器
 
 黑料718永久地址（需科学⬆️上网）
-[https://hl718.com](https://hl718.com) （禁止直接点击访问）请复制链接粘贴到浏览器
+[https://www.hl718.com](https://www.hl718.com) （禁止直接点击访问）请复制链接粘贴到浏览器
 
 备用地址1：
-[https://m.boecdn.com](https://m.boecdn.com) （禁止直接点击访问）请复制链接粘贴到浏览器
+[https://you.boecdn.com](https://you.boecdn.com) （禁止直接点击访问）请复制链接粘贴到浏览器
 
 备用地址2：
-[https://news.kugnvm.com](https://news.kugnvm.com) （禁止直接点击访问）请复制链接粘贴到浏览器
+[https://me.kugnvm.com](https://me.kugnvm.com) （禁止直接点击访问）请复制链接粘贴到浏览器
 
 ## 失联后如何找到回家的路：
 
 方法1:加入黑料718VX群：
-[https://hl718a.com/weixin.html](https://hl718a.com/weixin.html) （禁止直接点击访问）请复制链接粘贴到浏览器
+[https://www.hl718b.com/weixin.html](https://www.hl718b.com/weixin.html) （禁止直接点击访问）请复制链接粘贴到浏览器
 
 方法2:邮箱发送任意内容邮件可获取最新地址
 
@@ -39,16 +39,16 @@
 方法4:加入黑料718官方频道、用户群组
 
 黑料718官方频道（Telegram）
-[https://t.me/hl718com](https://t.me/hl718com)
+[https://t.me/hl718com/24](https://t.me/hl718com/24)
 
 黑料718官方官方用户群（Telegram）
 [https://t.me/hl718_com](https://t.me/hl718_com)
 
 黑料718近期热点：
 
-陕西师范新闻与传播学院极品女神被渣男曝光！
+开小米 SU7-Ultra 套路乡村拜金女激情车震测评 操最嫩的骚逼！
 
-[https://hl718a.com/30849](https://hl718a.com/30849)
+[https://www.hl718b.com/31560](https://www.hl718b.com/31560)
 
 ## 常见问题：
 
