@@ -31,7 +31,7 @@
 [cc18lv@gmail.com](mailto:cc18lv@gmail.com)
 
 邮箱2：
-[hl718com@proton.me](mailto:hl718com@pm.me)
+[hl718com@pm.me](mailto:hl718com@pm.me)
 
 方法3:关注黑料718官方推特
 [https://x.com/hl718com](https://x.com/hl718com)
